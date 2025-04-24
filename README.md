@@ -1,1 +1,1 @@
-⚫ Welcome to Visit https://gomokugame.org/ — Play G
+⚫ Welcome to Visit https://gomokugame.org/ — Play Gomoku Online!
